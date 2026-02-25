@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **iansmcfarland@gmail.com**
 
-- ⚡ Fun fact **3 passports **
+- ⚡ Fun fact **3 passports**
 
 - 👨‍💻 All of my projects are available at **[https://editingbyian.com](https://editingbyian.com)**
 
