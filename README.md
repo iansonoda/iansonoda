@@ -1,5 +1,5 @@
 # 💫 About Me:
-December 2025 McGill Graduate. Looking for new grad opportunities!
+May 2026 McGill Graduate. Looking for new grad opportunities!
 
 
 ## 🌐 Socials:
